@@ -10,4 +10,4 @@
 
 <h2>🤳Connect with me:</h2>
 
-Linkedin [https://linkedin.com/in/Josh](https://www.linkedin.com/in/abdelrahman-sabti/)
+Linkedin [https://linkedin.com/in/Abdelrahman Sabti](https://www.linkedin.com/in/abdelrahman-sabti/)
